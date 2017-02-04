@@ -17,6 +17,8 @@ So here are just a **few** of my favorites:
 * snowboarding
 * skiing
 
-![See me in my windsurfing hayday!] (https://www.facebook.com/photo.php fbid=1450483358296078&set=pb.100000032849255.-2207520000.1486168662.&type=3&size=360%2C245)
+Here's a picture during one of my Maui trips:
+
+![In my windsurfing hayday](https://scontent-sjc2-1.xx.fbcdn.net/v/t1.0-9/16472963_1450483358296078_6122549614872222232_n.jpg?oh=5aa5ff13324738db447f19749fa98bf8&oe=5915AC58)
 
 If you'd like some info about BAJA [check out my "Baja Joe's" website](http://dev-in-the-wind.pantheonsite.io)
